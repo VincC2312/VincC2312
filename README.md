@@ -2,7 +2,7 @@
   ## HI! I'm John Alvin
   I'm a Junior Web Developer focusing to learn and improve myself more every single day consistently.
   I love Frontend Developement due to I like building stuff and designing things. 
-  I know that this is not an easy journey that's why it makes me more excited and embracing myself to go even further to improve myself.
+  I know that this is not an easy journey that's why it makes me more excited and embracing myself to go even further to improve myself.:relaxed:
 
 - :star: I’m currently learning JavaScript
 - 📫 How to reach me: johnalvin.bonifacio@proton.me

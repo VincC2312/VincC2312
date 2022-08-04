@@ -5,5 +5,5 @@
   I know that this is not an easy journey that's why it makes me more excited and embracing myself to go even further to improve myself.:relaxed:
 
 - :star: I’m currently learning JavaScript
-- 📫 How to reach me: johnalvin.bonifacio@proton.me
+- 📫 Contact me here: @ohn23j1 (https://twitter.com/ohn23j1)
 - ⚡ Fun fact: I LOVE PLAYING GAMES, READ BOOKS, WATCH ANIME AND MOVIES!
